@@ -9,6 +9,8 @@ BYI! my first language isn't english so i might make gramatical mistakes! if so,
 
 DNI! minors, p3dos, incests and shit like that
 
+My favourite characters are: Romania, America (Hetalia), Bassie and Yatta (Dandy's world), 007n7 (Forsaken), Windowed Woman (NINAH) 
+
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9646f32a-6c60-4dbd-a221-06bf488d1769" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7b17a967-6926-4ba4-9da2-004f1152ab98" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3ea5dd17-0c69-407a-9682-afacba0caec0" />
