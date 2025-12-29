@@ -4,5 +4,7 @@
 
 
 HIIII!! you've probably stumbled across my github page from pony town! Im Iasmi/fang, im 20,and i really like pjsk and hetalia (mostly axis power because there, romania has 10 seconds of voice #proudromanian)
+
 BYI! my first language isn't english so i might make gramatical mistakes! if so, please correct me. I am an avid stoner, if you feel uncomfortable please don't interact; you matter!
+
 DNI! minors, p3dos, incests and shit like that
