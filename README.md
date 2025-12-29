@@ -9,7 +9,8 @@ BYI! my first language isn't english so i might make gramatical mistakes! if so,
 
 DNI! minors, p3dos, incests and shit like that
 
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/bd870a91-be40-41e4-b309-18764df084eb" /><img width="95" height="52" alt="image" src="https://github.com/user-attachments/assets/29c7a585-906a-41c3-a43d-d026a15f62f8" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/92444ac2-b129-4364-89f3-e04e3284e734" <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/10f82c00-88d4-4a0b-9c47-a1e92ad29e95" />
-/>
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9646f32a-6c60-4dbd-a221-06bf488d1769" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7b17a967-6926-4ba4-9da2-004f1152ab98" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3ea5dd17-0c69-407a-9682-afacba0caec0" />
 
 
