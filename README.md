@@ -15,5 +15,5 @@ My favourite characters are: Romania, America (Hetalia), Bassie and Yatta (Dandy
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7b17a967-6926-4ba4-9da2-004f1152ab98" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3ea5dd17-0c69-407a-9682-afacba0caec0" />
 
-![](https://komarev.com/ghpvc/?username=fangsterq)
+![](https://komarev.com/ghpvc/?username=fangsterq&color=ff69b4)
 
